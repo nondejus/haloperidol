@@ -1,0 +1,2 @@
+# haloperidol
+irreversible neurologische schade
